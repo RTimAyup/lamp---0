@@ -1,1 +1,1 @@
-# lamp---0
+https://rtimayup.github.io/lamp---0/
